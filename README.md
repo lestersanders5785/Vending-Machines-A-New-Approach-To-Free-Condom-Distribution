@@ -32,7 +32,7 @@ Saves Money: Using condom distribution applications through vending machines hel
 
 How To Get Started?<br>
 
-If you plan on using the condom card application to provide free contraception to your user base, you can use SaaS-based applications like the eC-Card app and set up vending machines at prime locations to ensure your services work seamlessly. <br>
+If you plan on using the <a href="https://www.providedigital.com/ec-card/">condom card application</a> to provide free contraception to your user base, you can use SaaS-based applications like the eC-Card app and set up vending machines at prime locations to ensure your services work seamlessly. <br>
 
 Instead of having to learn about sex on their own or from questionable sources, teens will be able to learn about it from specialists thanks to the eC-Card condom distribution application. Additionally, sexual healthcare professionals may impart knowledge on STIs, safe sexual practices, and other topics.<br>
 
